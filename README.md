@@ -1,0 +1,1 @@
+- Website hosting on godaddy.com on personal domain.
